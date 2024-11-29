@@ -1,9 +1,9 @@
 - 👋 Hi, I’m Philipin3ts
 - 👀 I’m interested in 
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ..ikuloiugv
 - 📫 How to reach me ..
-- 😄 Pronouns: ...
+- 😄 Pronouns: .
 - ⚡ Fun fact: 
 <!-ooosmc,,vu
 Philipin3ts/Philipin3ts is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
