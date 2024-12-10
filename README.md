@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Philipin3ts
 - 👀 I’m interested in 
-- 🌱 I’m currently learning tgrbhrdgbh trsb
+- 🌱 I’m currently learning tgfdgbrfwewd
 - 💞️ I’m looking to collaborate on ...ntgbhsefsfdewf
 - 📫 How to reach me ..
 - 😄 Pronouns: .
