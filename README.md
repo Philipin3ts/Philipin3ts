@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Philipin3ts
 - 👀 I’m interested in 
-- 🌱 I’m currently learning tgbohigtudrse
+- 🌱 I’m currently learning tgbnhjdyujstdj
 - 💞️ I’m looking to collaborate on ...nyreg
 - 📫 How to reach me ..
 - 😄 Pronouns: .
