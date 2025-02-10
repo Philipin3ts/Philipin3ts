@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Philipin3ts
 - 👀 I’m interested in 
 - 🌱 I’m currently learning dsjfpbipoth
-- 💞️ I’m looking to collaborate on ...hgviyukgybnuihnj
+- 💞️ I’m looking to collaborate on ...fgnjfdgyjdfn
 - 📫 How to reach me nhdg
 - 😄 Pronouns: .
 - ⚡ Fun fact: 
